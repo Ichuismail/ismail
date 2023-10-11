@@ -1,2 +1,2 @@
 # ismail
-is a good boy
+404 not found
